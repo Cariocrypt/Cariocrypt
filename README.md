@@ -15,6 +15,6 @@ ________________________________________________________________________________
 ### 📩Contacto
  Correo: **Carioahj4@gmail.com**
  
- Linkedln: **aaaaa**
+ Linkedln: **[Carlos Mora]** (https://www.linkedin.com/in/carlos-mora-1739a23a2/)
 
 
