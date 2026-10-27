@@ -1,4 +1,5 @@
-<img width="512" height="384" alt="WhatsApp Image 2026-10-26 at 19 31 23" src="https://github.com/user-attachments/assets/62fdad37-6ff6-4656-984c-da2793862861" />
+<img width="1195" height="665" alt="Panel" src="https://github.com/user-attachments/assets/5d02961d-7db8-4d69-b32e-f5d21e0e21de" />
+
 
 
 # 👋 Hola, soy Carlos Mora 
